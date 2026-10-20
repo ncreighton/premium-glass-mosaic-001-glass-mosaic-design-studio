@@ -1,0 +1,2 @@
+# premium-glass-mosaic-001-glass-mosaic-design-studio
+Tired of losing track of glass colors and project inspirations across sticky notes and folders? The Glass Mosaic Design Studio brings order to your creative chaos.  This Notion template transforms your mosaic workflow by centralizing every project, from initial idea to final grout. No more scattered sketches or forgotten color palettes — you'll hav
